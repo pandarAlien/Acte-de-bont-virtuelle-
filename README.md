@@ -9,7 +9,7 @@ je veut commance un trend qui est si un person son lever ton seau tu doit laiver
 
 ## comment sa veut aide sa notre communite 
 
-sa veut aide parce que si tu 
+Sa peut/veut aide parce que si tu laive le seau dautre tu peut fait plus dun grand l'impact sur cette person   
 
  
 
