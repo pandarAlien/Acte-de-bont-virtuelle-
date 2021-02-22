@@ -13,7 +13,7 @@ Sa peut/veut aide parce que si tu laive le seau dautre tu peut fait plus dun gra
 
 ## comment sa se passe?
 
-le chose drole et que je ne sait pa. je ne sait pas si les person veut fait sa ou regulier de aller su se siteweb. ma si tu et sur et que tu vu sa maintenent fait un differance a ce mond, si tu a tout ses resource dans ton mains pourquois pas utilise? il y a un si je peut reflishis sur sa je peut te dire que maim si je ne pas vu le differance, je dire que je aide a le prossesus de fait sa differance ("je suis le person dans le chais")
+le chose drole et que je ne sait pa. je ne sait pas si les person veut fait sa ou regulier de aller su se siteweb. ma si tu et sur et que tu vu sa maintenent fait un differance a ce mond, si tu a tout ses resource dans ton mains pourquois pas utilise? il y a un si je peut reflishis sur sa je peut te dire que maim si je ne pas vu le differance, je dire que je aide a le prossesus de fait sa differance "je suis le inspiration".
 
 
  
