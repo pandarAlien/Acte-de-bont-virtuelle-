@@ -9,7 +9,12 @@ je veut commance un trend qui est si un person son lever ton seau tu doit laiver
 
 ## comment sa veut aide sa notre communite 
 
-Sa peut/veut aide parce que si tu laive le seau dautre tu peut fait plus dun grand l'impact sur cette person maim si sa just fait que sa person souris. Si ta peut just aide a fait sa tout le comuiter peut etre plus heureux.   
+Sa peut/veut aide parce que si tu laive le seau dautre tu peut fait plus dun grand l'impact sur cette person maim si sa just fait que sa person souris. Si tu aide a fait sa tout le communiter peut etre plus heureux. et si sa commuiter aller au un l'autre et sa peut grandir plus et plus en haut. je ne sait pas a toi ma si tu et plus heureux tu a un plus bon temp et l'atitude. 
+
+## comment sa se passe?
+
+le chose drole et que je ne sait pa. je ne sait pas si les person veut fait sa ou regulier de aller su se siteweb. ma si tu et sur et que tu vu sa maintenent fait un differance a ce mond, si tu a tout ses resource dans ton mains pourquois pas utilise? il y a un si je peut reflishis sur sa je peut te dire que maim si je ne pas vu le differance, je dire que je aide a le prossesus de fait sa differance ("je suis le person dans le chais")
+
 
  
 
